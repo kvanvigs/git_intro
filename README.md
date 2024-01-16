@@ -1,1 +1,2 @@
 Samuel Kvanvig
+kvanvigs@oregonstate.edu
